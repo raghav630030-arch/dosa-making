@@ -4,3 +4,5 @@ We are preparing the dosa shop
 
 1. take dosa batter
 2.light the stove
+
+3. pour some oil 
