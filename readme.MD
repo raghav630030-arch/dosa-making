@@ -6,3 +6,6 @@ We are preparing the dosa shop
 2.light the stove
 
 3. pour some oil 
+
+# Preparing the karam dosa
+* take the dosa batter
