@@ -11,3 +11,7 @@ We are preparing the dosa shop
 * take the dosa batter
 * karam added
 * Hello
+
+# Preparing egg dosa
+take the dosa batter
+take the egg and pour
